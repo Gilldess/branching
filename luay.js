@@ -1,1 +1,1 @@
-nama saay luy Bachtiar Rifai
+nama saya luay Bachtiar Rifai
